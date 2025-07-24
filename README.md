@@ -1,5 +1,5 @@
 # 💫 About Me:
-MY SECOND ACCOUNT [!GITHUB]([muhirwaJD](https://github.com/muhirwaJD))<br>👨🏾‍🍳 I'm always cooking something cool!<br>😄 I'm cool as my projects!<br>👨🏾‍🎓 Software Engineer.<br>😂 I don't like pizza.<br>📝 Always learning!<br>
+MY SECOND [!GITHUB](https://github.com/muhirwaJD)<br>👨🏾‍🍳 I'm always cooking something cool!<br>😄 I'm cool as my projects!<br>👨🏾‍🎓 Software Engineer.<br>😂 I don't like pizza.<br>📝 Always learning!<br>
 
 
 ## 🌐 Socials:
